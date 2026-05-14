@@ -1,4 +1,4 @@
-# 
+# exclusive leverage trading bot Algorithm | scalping + slippage-control offers the most advanced leverage trading bot, with scalping and slippage-control. Ideal for professional
 
 
 
